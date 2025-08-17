@@ -5,20 +5,22 @@ Nicknames are very welcome!
 ->> !minor (under 18)
 ────────────────────────────
 
- ╰┈➤. Hey there! I don't bite, feel free to int! c+h is very appreciated. All ships can freely int<3 ! (unless I move away)
+╰┈➤. Hey there! I don't bite, feel free to int! c+h is very appreciated. All ships can freely int<3 ! (unless I move away)
 
-   ⭑.ᐟ I don't really interact first . . . IF YOU WANT TO INT PLEASE DO!!!!! I tend to get anxious easily so that holds me back.
+⭑.ᐟ I don't really interact first . . . IF YOU WANT TO INT PLEASE DO!!!!! I tend to get anxious easily so that holds me back.
      ‹𝟹 C+H IS VERY WELCOME! ‹𝟹 Feel free to friend me! Please stick to whispering to me rather than talking in local, I don't follow that chat.
 
-   ↳ I LOVE matching! Please don't be scared to ask to match names, pfps, bios anythin' !!!
+↳ I LOVE matching! Please don't be scared to ask to match names, pfps, bios anythin' !!!
   
-   If I don't answer instantly it's either I'm admiring ponies or I've gone afk! (I usually put ⛔ busy then though.)
+If I don't answer instantly it's either I'm admiring ponies or I've gone afk! (I usually put ⛔ busy then though.)
+ 
+ !semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that means anyone who struggles greatly to communicate. This could be people who speak in short sentances, people who only speak in echolalia, people who only speak when spoken to, people who’s sentences get switched around and words get jumbled. People whose speech is incoherent and unable to be understood.)
  
 ----> 🌙 means im gonna brb, small afk ,, 🟢 feel free to int and c+h! will answer immediately! ⛔ busy, will be afk for a while, dni (included in name if this option)
 
-  ↳ I'm a rather sensitive/emotional person. I am usually rude to my friends for fun (notify if uncomf with it pls!), sarcasm, dry humor welcomed! ˚ · .
+↳ I'm a rather sensitive/emotional person. I am usually rude to my friends for fun (notify if uncomf with it pls!), sarcasm, dry humor welcomed! ˚ · .
 
-   ₊⊹ very clingy (if I'm uncomfy/movin away please ask first to cuddle/hug)
+₊⊹ very clingy (if I'm uncomfy/movin away please ask first to cuddle/hug)
 
 ────────────────────────────
 
