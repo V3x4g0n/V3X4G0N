@@ -28,9 +28,13 @@ If I don't answer instantly it's either I'm admiring ponies or I've gone afk! (I
 Genderfluid, pansexual, asexual ,,
 
 ────────────────────────────
+
 currently hyperfixated on: FORSAKEN ,, DOD ,, BIAST 
 
+(yes im a multishipper.)
+
 favortie ships (currently): Buildermon , 1xdoe , doublefedora , frozendebt , Ichance , double punch and toughluck! (ellertrapped go brr)
+
 ────────────────────────────
 
 hvykins; Chance,1x4 (FSK), Tyler Hernandez (SBG)
