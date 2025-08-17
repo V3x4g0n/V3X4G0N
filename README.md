@@ -1,8 +1,9 @@
 ─── ⋆⋅☆⋅⋆ ────
-Elias // Vex
-he/them/any !!
-Nicknames are very welcome!
+
+Elias // Vex ,, he/them/any !! ,, Nicknames are very welcome!
+
 ->> !minor (under 18)
+
 ────────────────────────────
 
 ╰┈➤. Hey there! I don't bite, feel free to int! c+h is very appreciated. All ships can freely int<3 ! (unless I move away)
