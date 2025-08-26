@@ -1,3 +1,6 @@
+❝ For what's inside awaking, I'm not, I'm not a whore .
+You've taken everything and oh, I cannot give any more ! ❞
+
 ─── ⋆⋅☆⋅⋆ ────
 
 Elias // Vex ,, he/them/any !! ,, Nicknames are very welcome!
