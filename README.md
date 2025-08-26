@@ -7,7 +7,8 @@ Elias // Vex ,, he/them/any !! ,, Nicknames are very welcome!
 
 ->> !minor (under 18)
 
-![0187-transparentsparkle](https://github.com/user-attachments/assets/c058f64f-2fe3-426a-8c47-880a5b5203c7)
+![9a979c8d3d5447eafc565785b44a6ea5](https://github.com/user-attachments/assets/140172d3-5e83-4dc7-99c3-bc396d88810b)
+
 
 ────────────────────────────
 
