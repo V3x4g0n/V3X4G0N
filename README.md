@@ -1,5 +1,5 @@
-❝ For what's inside awaking, I'm not, I'm not a whore .
-You've taken everything and oh, I cannot give any more ! ❞
+<img width="652" height="231" alt="image" src="https://github.com/user-attachments/assets/84975cce-1d21-46bd-b7f5-592e702da882" />
+
 
 ─── ⋆⋅☆⋅⋆ ────
 
