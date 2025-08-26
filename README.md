@@ -8,7 +8,7 @@ Elias // Vex ,, he/them/any !! ,, Nicknames are very welcome!
 ->> !minor (under 18)
 
 
-
+<img width="300" height="210" alt="image" src="https://github.com/user-attachments/assets/17efde90-7fb1-4c62-83b6-e2ad58c4339a" />
 
 ────────────────────────────
 
@@ -33,6 +33,9 @@ If I don't answer instantly it's either I'm admiring ponies or I've gone afk! (I
 
 Genderfluid, pansexual, asexual ,,
 
+<img width="175" height="110" alt="image" src="https://github.com/user-attachments/assets/6c98af8d-06c5-4d18-bf6c-d951d681eb75" />
+
+
 ────────────────────────────
 
 currently hyperfixated on: FORSAKEN ,, DOD ,, BIAST 
@@ -40,6 +43,9 @@ currently hyperfixated on: FORSAKEN ,, DOD ,, BIAST
 (yes im a multishipper.)
 
 favortie ships (currently): Buildermon , 1xdoe , doublefedora , frozendebt , Ichance , double punch and toughluck! (ellertrapped go brr)
+
+
+
 
 ────────────────────────────
 
@@ -49,5 +55,8 @@ hvykins; Chance,1x4 (FSK), Tyler Hernandez (SBG)
 <img width="235" height="238" alt="image" src="https://github.com/user-attachments/assets/62a7b8f1-b47c-4f34-b06d-492b69c059c6" />
 
 <img width="235" height="269" alt="image" src="https://github.com/user-attachments/assets/24fad1af-0f95-4391-b28b-bc3158f31bc3" />
+
+<img width="275" height="210" alt="image" src="https://github.com/user-attachments/assets/d74ea738-e560-42a4-9f0d-1ac1ef753c0c" />
+
 
 
