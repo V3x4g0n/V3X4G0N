@@ -7,6 +7,8 @@ Elias // Vex ,, he/them/any !! ,, Nicknames are very welcome!
 
 ->> !minor (under 18)
 
+![0187-transparentsparkle](https://github.com/user-attachments/assets/c058f64f-2fe3-426a-8c47-880a5b5203c7)
+
 ────────────────────────────
 
 ╰┈➤. Hey there! I don't bite, feel free to int! c+h is very appreciated. All ships can freely int<3 ! (unless I move away)
