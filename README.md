@@ -51,7 +51,7 @@ favortie ships (currently): Buildermon , 1xdoe , doublefedora , frozendebt , Ich
 
 ────────────────────────────
 
-hvykins; Chance,1x4 (FSK), Tyler Hernandez (SBG)
+hvykins; Chance,1x4 (FSK), Tyler Hernandez (SBG) , iTrapped/Two-Faced/Isaac (mm12/FSK)
 
 
 <img width="235" height="238" alt="image" src="https://github.com/user-attachments/assets/62a7b8f1-b47c-4f34-b06d-492b69c059c6" />
