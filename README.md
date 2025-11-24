@@ -1,7 +1,8 @@
 <img width="600" height="935" alt="image" src="https://github.com/user-attachments/assets/5e608d81-a04e-4714-8f78-52ff6f4de646" />
 
 
-![a57f0023](https://github.com/user-attachments/assets/c4f9e1e3-418b-4bb6-bc64-061a0c4ab5ed) 
+![a57f0023](https://github.com/user-attachments/assets/c4f9e1e3-418b-4bb6-bc64-061a0c4ab5ed) ![0228-pinkdrip](https://github.com/user-attachments/assets/e2aa4024-ac3c-4c5b-8025-2278380e9648)
+
 
 ─── ⋆⋅☆⋅⋆ ────
 
@@ -9,7 +10,6 @@ This is page is mostly made for ponytown, but includes general info aswell..
 
 ->> !minor (under 18)
 
-![2c22a591](https://github.com/user-attachments/assets/78348337-e112-4fbf-8ac3-2db3f5233a09)
 
 ![d4ec844f](https://github.com/user-attachments/assets/719b8a06-5b77-40ee-8bed-3a1a70e16606)
 
