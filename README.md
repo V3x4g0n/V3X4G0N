@@ -1,7 +1,7 @@
-![228c51b6](https://github.com/user-attachments/assets/dacbd89a-9653-486d-a35d-c5464b333af0)
-
-
 <img width="600" height="935" alt="image" src="https://github.com/user-attachments/assets/5e608d81-a04e-4714-8f78-52ff6f4de646" />
+
+
+![a57f0023](https://github.com/user-attachments/assets/c4f9e1e3-418b-4bb6-bc64-061a0c4ab5ed)
 
 ─── ⋆⋅☆⋅⋆ ────
 
@@ -9,7 +9,8 @@ This is page is mostly made for ponytown, but includes general info aswell..
 
 ->> !minor (under 18)
 
-────────────────────────────
+![d4ec844f](https://github.com/user-attachments/assets/719b8a06-5b77-40ee-8bed-3a1a70e16606)
+
 
 ⭑.ᐟ I don't really interact first . . . I tend to get anxious easily so that holds me back.
 
