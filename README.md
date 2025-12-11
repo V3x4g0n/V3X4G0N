@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=V3XXP&color=grey)
+
 <img width="223" height="223" alt="image" src="https://github.com/user-attachments/assets/b1359e4f-e5ba-4b12-b3eb-762c88dd07d9" /> <img width="600" height="935" alt="image" src="https://github.com/user-attachments/assets/5e608d81-a04e-4714-8f78-52ff6f4de646" />
 
 ![self](https://github.com/user-attachments/assets/48745da5-1013-4456-a533-bd6b7da40872) ![1071338ipvpyh23ww](https://github.com/user-attachments/assets/7fb6d6a6-9da6-4190-81f3-046d7654044f)
