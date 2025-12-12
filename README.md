@@ -57,7 +57,7 @@ This is page is mostly made for ponytown, but includes general info aswell..
 
 currently hyperfixated on: FORSAKEN ,, DOD ,, BIAST ,, PHIGHTING
 
-hvykins; Ivan (bad things) Chance,1x4 (FSK), Tyler Hernandez (SBG) , iTrapped/Two-Faced/Isaac (mm12/FSK) , Hyperlaser/Medkit (PHIGHT)
+hvykins; Caz (SWTD) , Ivan (bad things) Chance,1x4 (FSK), Tyler Hernandez (SBG) , iTrapped/Two-Faced/Isaac (mm12/FSK) , Hyperlaser/Medkit (PHIGHT)
 
 ![vi16](https://github.com/user-attachments/assets/27a2e43a-b804-46bd-81c3-d908434cdb68)
 
