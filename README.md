@@ -8,7 +8,7 @@
 
 ─── ⋆⋅☆⋅⋆ ────
 
-This is page is mostly made for ponytown, but includes general info aswell..
+. . 
 
 ->> !minor (under 18)
 
